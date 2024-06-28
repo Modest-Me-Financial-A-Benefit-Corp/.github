@@ -10,5 +10,5 @@ Modest Me Financial, A Benefit Corporation
 Modest Me Financial, A.B.C. also began with intentions to become a Benefit Corporation or a B Corporation to implement a more holistic approach to Economic and Business Development. In this space Our Environmental Goals become integrated in Our Purpose and help Push Environmental initiatives. Be Thou Clean Environmental, became the entity Modest Me Financial, A.B.C., created and operates to address Environmental Issues.
 
 Check Out the YouTube Videos
-             @
+         @     
 Be Thou Clean Environmental
